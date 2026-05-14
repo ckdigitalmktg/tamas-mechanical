@@ -74,4 +74,4 @@ Serving homeowners in Cooksville, Applewood, Dixie, and Fairview, our team is re
 
 For HVAC inspections, repairs, and maintenance services, contact Tamas Mechanical today.
 
-https://www.comfortappliancerepairtn.com/
+[https://tamasmech.com/](https://tamasmech.com/)
